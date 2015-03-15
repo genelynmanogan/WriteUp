@@ -1,6 +1,6 @@
 # WriteUp
 #Progressive multifocal leukoencephalopathy
-Share on facebook Share on twitter Bookmark & Share Printer-friendly version
+
 
 Progressive multifocal leukoencephalopathy (PML) is a rare infection that damages the material (myelin) that covers and protects nerves in the white matter of the brain.
 Causes
